@@ -141,7 +141,7 @@ Powered By:
                                                                                   
                                                                                   
 
- >> HostingSewa: https://www.hostingewa.com
+ >> HostingSewa: https://www.hostingsewa.com
  >> Also: https://rsl.com.np
 
 ################################################################
